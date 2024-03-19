@@ -6,7 +6,7 @@
 
 # Perfil de Lucas Soares
 
-Analista de sistemas mainframe e entuasiata de novas tencnologia.
+Analista de sistemas mainframe e entusiasta de novas tencnologia.
 
 ### Conecte-se comigo
 
